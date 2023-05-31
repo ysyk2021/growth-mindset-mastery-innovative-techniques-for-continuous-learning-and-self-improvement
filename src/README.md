@@ -10,4 +10,4 @@ Through a series of chapters, you'll learn how to develop resilience and perseve
 
 Whether you're a student, working professional, or just looking to grow as a person, this book has something valuable to offer. By putting these innovative techniques into practice, you can take your personal and professional growth to the next level and achieve success in all areas of your life.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
