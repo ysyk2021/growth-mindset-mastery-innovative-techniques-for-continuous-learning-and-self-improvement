@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Science of Growth Mindset
-======================================================
 
 In this chapter, we will explore the science behind growth mindset, strategies for developing a growth mindset based on neuroscience, psychology, and behavioral analysis, and the benefits of understanding the science of growth mindset for improved cognitive function and increased learning potential.
 

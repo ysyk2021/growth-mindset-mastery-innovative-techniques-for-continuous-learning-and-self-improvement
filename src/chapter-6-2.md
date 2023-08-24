@@ -1,5 +1,3 @@
-Strategies for Creativity, Imagination, and Innovative Thinking
-====================================================================================================================
 
 In this chapter, we will discuss strategies for creativity, imagination, and innovative thinking that can help individuals develop their problem-solving skills and generate new ideas.
 

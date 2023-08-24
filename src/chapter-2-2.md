@@ -1,5 +1,3 @@
-Strategies for Neuroscience, Psychology, and Behavioral Analysis for a Growth Mindset
-=============================================================================================================================================
 
 In this chapter, we will discuss strategies for developing a growth mindset based on neuroscience, psychology, and behavioral analysis.
 

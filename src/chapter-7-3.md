@@ -1,5 +1,3 @@
-The Benefits of Growth Mindset in Interpersonal Relationships for Improved Communication and Deeper Meaningful Connections
-====================================================================================================================================================================================
 
 In this chapter, we will explore the benefits of a growth mindset in interpersonal relationships, including improved communication and deeper, more meaningful connections.
 

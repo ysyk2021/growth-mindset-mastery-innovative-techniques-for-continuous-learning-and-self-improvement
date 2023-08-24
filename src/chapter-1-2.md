@@ -1,5 +1,3 @@
-Growth Mindset, Fixed Mindset, and Self-improvement
-===================================================================================================
 
 In this chapter, we will define key concepts related to growth mindset, including growth mindset, fixed mindset, and self-improvement.
 

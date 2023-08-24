@@ -1,5 +1,3 @@
-Chapter 3: Building a Growth Mindset
-====================================
 
 In this chapter, we will explore strategies for building a growth mindset and the benefits of doing so, including improved creativity and innovative thinking.
 

@@ -1,5 +1,3 @@
-The Benefits of Understanding the Science of Growth Mindset for Improved Cognitive Function and Increased Learning Potential
-====================================================================================================================================================================================
 
 In this chapter, we will explore the science behind growth mindset and the benefits of understanding this concept for improved cognitive function and increased learning potential.
 

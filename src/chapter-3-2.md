@@ -1,5 +1,3 @@
-Strategies for Setting Goals, Embracing Failure, and Developing Resilience
-================================================================================================================
 
 In this chapter, we will explore strategies for building a growth mindset, including setting goals, embracing failure, and developing resilience.
 

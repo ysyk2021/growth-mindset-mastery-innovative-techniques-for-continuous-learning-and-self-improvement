@@ -1,5 +1,3 @@
-Chapter 5: Overcoming Obstacles and Challenges
-==============================================
 
 In this chapter, we will explore strategies for developing a growth mindset in the face of obstacles, roadblocks, and adversities, and the benefits of overcoming obstacles and challenges for improved self-confidence and resilience.
 

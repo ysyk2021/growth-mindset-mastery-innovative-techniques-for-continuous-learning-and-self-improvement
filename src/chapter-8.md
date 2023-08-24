@@ -1,5 +1,3 @@
-Chapter 8: Mindfulness and Growth Mindset
-=========================================
 
 In this chapter, we will explore the relationship between mindfulness and growth mindset. We will also discuss strategies for mindful awareness and growth mindset techniques, as well as the benefits of mindfulness and growth mindset for improved overall well-being and enhanced cognitive function.
 

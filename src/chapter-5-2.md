@@ -1,5 +1,3 @@
-Strategies for Growth Mindset in the Face of Obstacles, Roadblocks, and Adversities
-===================================================================================================================================
 
 In this chapter, we will explore strategies for developing a growth mindset in the face of obstacles, roadblocks, and adversities.
 

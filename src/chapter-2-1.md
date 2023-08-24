@@ -1,5 +1,3 @@
-Understanding the Science of Growth Mindset
-===================================================================================================
 
 In this chapter, we will delve deeper into the science behind growth mindset and how it influences our thoughts, behaviors, and overall development.
 

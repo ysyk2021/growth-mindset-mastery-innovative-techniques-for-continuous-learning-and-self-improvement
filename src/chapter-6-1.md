@@ -1,5 +1,3 @@
-Techniques for Creativity and Innovation
-=============================================================================================
 
 In this chapter, we will explore techniques for creativity and innovation that can help individuals develop their problem-solving skills and generate new ideas.
 

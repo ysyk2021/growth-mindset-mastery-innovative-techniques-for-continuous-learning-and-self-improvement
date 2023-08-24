@@ -1,5 +1,3 @@
-Chapter 6: Techniques for Creativity and Innovation
-===================================================
 
 In this chapter, we will discuss techniques for creativity and innovation that can help individuals develop their problem-solving skills and generate new ideas.
 

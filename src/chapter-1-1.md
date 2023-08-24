@@ -1,5 +1,3 @@
-Understanding the Importance of Growth Mindset for Personal and Professional Success
-=============================================================================================================
 
 In this chapter, we will explore the importance of growth mindset for personal and professional success.
 

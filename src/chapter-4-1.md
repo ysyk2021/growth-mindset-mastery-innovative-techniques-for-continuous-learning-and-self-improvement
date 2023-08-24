@@ -1,5 +1,3 @@
-Developing a Passion for Learning
-============================================
 
 In this chapter, we will explore the importance of developing a passion for learning and discuss strategies for cultivating a love of learning.
 

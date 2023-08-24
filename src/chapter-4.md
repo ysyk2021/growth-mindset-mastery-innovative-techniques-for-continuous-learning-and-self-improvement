@@ -1,5 +1,3 @@
-Chapter 4: Developing a Passion for Learning
-============================================
 
 In this chapter, we will explore strategies for developing a passion for learning and the benefits of doing so, including personal fulfillment and improved quality of life.
 

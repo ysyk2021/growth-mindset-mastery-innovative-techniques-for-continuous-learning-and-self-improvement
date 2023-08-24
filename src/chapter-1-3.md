@@ -1,5 +1,3 @@
-The Importance of Developing a Growth Mindset for Optimal Learning and Self-development
-================================================================================================================
 
 In this chapter, we will introduce the concept of growth mindset and explain why it is essential for optimal learning and self-development.
 

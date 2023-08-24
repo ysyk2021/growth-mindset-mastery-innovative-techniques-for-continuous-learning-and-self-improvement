@@ -1,5 +1,3 @@
-Chapter 7: Growth Mindset in Interpersonal Relationships
-========================================================
 
 In this chapter, we will explore the importance of a growth mindset in interpersonal relationships and discuss strategies for developing a growth mindset in this context.
 

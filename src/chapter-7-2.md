@@ -1,5 +1,3 @@
-Strategies for Empathy, Compassion, and Collaboration in Relationships
-================================================================================================================================
 
 In this chapter, we will explore strategies for developing empathy, compassion, and collaboration in interpersonal relationships using a growth mindset.
 

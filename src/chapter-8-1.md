@@ -1,5 +1,3 @@
-Mindfulness and Growth Mindset
-=========================================================================
 
 In this chapter, we will explore the connection between mindfulness and growth mindset and how combining these two practices can lead to greater personal and professional development.
 

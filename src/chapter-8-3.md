@@ -1,5 +1,3 @@
-The Benefits of Mindfulness and Growth Mindset for Improved Overall Well-being and Enhanced Cognitive Function
-=========================================================================================================================================================
 
 In this chapter, we will explore the benefits of mindfulness and growth mindset for improved overall well-being and enhanced cognitive function.
 

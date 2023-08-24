@@ -1,4 +1,3 @@
-# Conclusion
 
 In this final chapter, we will summarize the key points presented in the book, discuss developing an action plan for growth mindset mastery and continuous learning, and provide encouragement for continued growth, development, and lifelong learning towards a fulfilling life with a growth mindset.
 
