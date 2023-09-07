@@ -10,3 +10,7 @@ Through a series of chapters, you'll learn how to develop resilience and perseve
 Whether you're a student, working professional, or just looking to grow as a person, this book has something valuable to offer. By putting these innovative techniques into practice, you can take your personal and professional growth to the next level and achieve success in all areas of your life.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

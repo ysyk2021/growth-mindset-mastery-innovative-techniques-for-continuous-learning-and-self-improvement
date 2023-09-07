@@ -34,3 +34,4 @@
   - [The Benefits of Mindfulness and Growth Mindset for Improved Overall Well-being and Enhanced Cognitive Function](chapter-8-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
