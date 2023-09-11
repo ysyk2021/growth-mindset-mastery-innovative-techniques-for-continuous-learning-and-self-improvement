@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Mindful Awareness and Growth Mindset Techniques
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the powerful combination of mindful awareness and growth mindset techniques for developing a growth mindset. Mindful awareness involves the practice of being fully present in the moment, while a growth mindset fosters the belief that abilities and intelligence can be developed through dedication and effort. By integrating these two concepts, individuals can cultivate a deeper understanding of their thoughts, emotions, and behaviors, leading to enhanced self-awareness and personal growth. Let's delve into the strategies and techniques for incorporating mindful awareness into your journey towards a growth mindset.
 

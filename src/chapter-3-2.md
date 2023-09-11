@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Setting Goals, Embracing Failure, and Developing Resilience
-=====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for setting goals, embracing failure as a stepping stone to success, and developing resilience. These skills are essential for mastering a growth mindset and achieving continuous learning and self-improvement. By implementing these strategies, you can navigate challenges, overcome setbacks, and unlock your full potential. Let's delve into the techniques that will empower you to set meaningful goals, reframe failure, and cultivate resilience.
 

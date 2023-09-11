@@ -1,5 +1,4 @@
-Chapter: The Benefits of Overcoming Obstacles and Challenges for Improved Self-Confidence and Resilience
-========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits of overcoming obstacles and challenges for improved self-confidence and resilience. By embracing challenges and developing a growth mindset, you can enhance your ability to navigate through difficulties, build self-confidence, and cultivate resilience. Let's delve into the advantages!
 

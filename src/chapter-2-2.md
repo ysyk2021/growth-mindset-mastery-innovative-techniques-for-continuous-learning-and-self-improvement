@@ -1,5 +1,4 @@
-Chapter: Strategies for Neuroscience, Psychology, and Behavioral Analysis for a Growth Mindset
-==============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies rooted in neuroscience, psychology, and behavioral analysis that can help cultivate and strengthen a growth mindset. By understanding the underlying mechanisms and applying these techniques, you can effectively develop a growth mindset for continuous learning and self-improvement. Let's dive in!
 

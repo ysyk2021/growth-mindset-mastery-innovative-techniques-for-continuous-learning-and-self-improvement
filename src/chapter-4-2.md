@@ -1,5 +1,4 @@
-Chapter: Strategies for Curiosity, Exploration, and Continuous Learning
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss strategies for fostering curiosity, promoting exploration, and facilitating continuous learning. These techniques will empower you to develop a growth mindset and unlock your potential for continuous self-improvement. Let's dive in!
 

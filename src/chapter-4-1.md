@@ -1,5 +1,4 @@
-Chapter 8: Developing a Passion for Learning
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques and strategies to develop a passion for learning. Cultivating a love for learning is crucial for personal growth, self-improvement, and achieving success in various areas of life. By adopting these techniques, individuals can foster a lifelong enthusiasm for acquiring knowledge and continuously expanding their skills and abilities.
 

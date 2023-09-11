@@ -1,5 +1,4 @@
-Chapter: The Benefits of Developing a Passion for Learning for Personal Fulfillment and Improved Quality of Life
-================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits that come with developing a passion for learning. By embracing a mindset of continuous learning, you can experience personal fulfillment and greatly improve your quality of life. Let's delve into the advantages.
 

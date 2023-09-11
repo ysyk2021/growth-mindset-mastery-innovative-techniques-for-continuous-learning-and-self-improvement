@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Creativity and Innovation
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques for fostering creativity and promoting innovation. By incorporating these techniques into your learning journey, you can enhance problem-solving skills, generate new ideas, and cultivate a growth mindset. Let's dive in!
 

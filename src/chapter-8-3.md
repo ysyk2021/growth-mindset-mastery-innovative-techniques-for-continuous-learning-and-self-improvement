@@ -1,5 +1,4 @@
-Chapter 8: The Benefits of Mindfulness and Growth Mindset for Improved Overall Well-being and Enhanced Cognitive Function
-=========================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound benefits of practicing mindfulness and cultivating a growth mindset. These two powerful concepts, when combined, can have a transformative impact on our overall well-being and cognitive function. We will delve into the ways in which mindfulness and a growth mindset contribute to personal growth, mental clarity, emotional resilience, and improved cognitive abilities.
 

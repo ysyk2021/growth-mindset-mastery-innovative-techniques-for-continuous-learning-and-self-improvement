@@ -1,5 +1,4 @@
-Chapter: Strategies for Growth Mindset in the Face of Obstacles, Roadblocks, and Adversities
-============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for cultivating a growth mindset when faced with obstacles, roadblocks, and adversities. Developing a growth mindset in challenging situations allows individuals to persevere, learn from setbacks, and continue their journey of continuous learning and self-improvement. Let's delve into effective strategies for maintaining a growth mindset in the face of adversity.
 

@@ -1,5 +1,4 @@
-Chapter: Growth Mindset in Interpersonal Relationships
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of growth mindset within the context of interpersonal relationships. Developing a growth mindset in relationships can foster understanding, empathy, and personal growth. By embracing a growth mindset, individuals can cultivate healthier and more fulfilling connections with others. Let's delve into the various aspects of growth mindset in interpersonal relationships.
 

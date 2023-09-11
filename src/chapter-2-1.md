@@ -1,5 +1,4 @@
-Chapter: Understanding the Science of Growth Mindset
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the science behind growth mindset and how understanding it can help you cultivate a growth mindset for continuous learning and self-improvement. Let's dive in!
 

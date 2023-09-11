@@ -1,5 +1,4 @@
-Chapter 6: The Benefits of Building a Growth Mindset for Improved Creativity and Innovative Thinking
-====================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound benefits that come with developing a growth mindset specifically in relation to creativity and innovative thinking. A growth mindset empowers individuals to embrace challenges, persist through obstacles, and view failures as opportunities for growth. By adopting innovative techniques and cultivating a growth mindset, individuals can unlock their creative potential, enhance their problem-solving skills, and foster a mindset that encourages innovation. Let's delve into the remarkable advantages of building a growth mindset for improved creativity and innovative thinking.
 

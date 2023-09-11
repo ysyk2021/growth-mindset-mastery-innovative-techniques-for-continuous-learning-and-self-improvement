@@ -1,5 +1,4 @@
-Chapter 8: Building a Growth Mindset
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the process of building a growth mindset---a powerful mindset that enables continuous learning and self-improvement. A growth mindset is characterized by a belief that abilities and intelligence can be developed through dedication, effort, and resilience. By embracing specific techniques and strategies, individuals can cultivate a growth mindset and unlock their full potential. Let's delve into the steps involved in building a growth mindset.
 

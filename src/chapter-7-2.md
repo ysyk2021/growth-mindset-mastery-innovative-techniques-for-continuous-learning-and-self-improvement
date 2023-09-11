@@ -1,5 +1,4 @@
-Chapter: Strategies for Empathy, Compassion, and Collaboration in Relationships
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for fostering empathy, compassion, and collaboration in relationships. Developing these qualities is essential for building meaningful connections, understanding others' perspectives, and working together towards shared goals. Let's delve into effective strategies for cultivating empathy, compassion, and collaboration in your relationships.
 

@@ -1,5 +1,4 @@
-Chapter 5: Overcoming Obstacles and Challenges
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for overcoming obstacles and challenges on the path to mastering a growth mindset. Developing a growth mindset requires perseverance, resilience, and the ability to navigate through various hurdles that may arise along the way. By adopting innovative techniques and implementing practical approaches, individuals can overcome obstacles and embrace challenges as opportunities for growth and self-improvement. Let's delve into some valuable strategies to help you overcome obstacles and challenges in your journey towards growth mindset mastery.
 
